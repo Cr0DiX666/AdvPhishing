@@ -116,7 +116,7 @@ Through This Features You can Obtains the Credentails on Your Gmail Account or S
 
 ### Contact For Contribute & Issues 
 
-                                      EMAIL FOR ISSUES AND CONTRIBUTE : sg5479845@gmail.com
+                                      EMAIL FOR ISSUES AND CONTRIBUTE : RSecxxx@gmail.com
 
 ### DISCLAIMER
                                        TO BE USED FOR EDUCATIONAL PURPOSES ONLY
